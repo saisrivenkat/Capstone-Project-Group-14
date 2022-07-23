@@ -1,6 +1,6 @@
 
 
-![](./screen-caps/01Homepage.jpeg)
+![](./screen-caps/Home.jpeg)
 Admin Login
 
 ```
