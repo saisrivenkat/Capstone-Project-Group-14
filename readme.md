@@ -1,5 +1,5 @@
 
-# Shop4Home
+# Shop4Homes
 Welcome to Shop4Home. We are dedicated in giving you the very best of our products, with a focus on dependability, customer service and uniqueness. Right from the foundation, Shop4Home has come a long way from its beginnings. When we first started out, our passion for helping other parents be more eco-friendly, providing the best equipment for our fellow musicians drove us todo intense research and gave us the impetus to turn hard work and inspiration into to a booming online store. We now serve customers all over the world and are thrilled to be a part of the quirky,We hope you enjoy our products as much as we enjoy offering them to you.
 
 
